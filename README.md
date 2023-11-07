@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @DOT-LOG
+- 👀 I’m interested in programming and game development
+- 🌱 I’m currently learning different game engines and programming languages. EVEN JAPANESE!
+- 💞️ I’m looking to collaborate on anything you find interesting im working on. Also you can dm me on Discord but i most likely will decline your offer :(
+- 📫 How to reach me Discord! @SANTAMANVR yeah don't ask lol :3
+- 
